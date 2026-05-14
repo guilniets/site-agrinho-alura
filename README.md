@@ -1,1 +1,1 @@
-# Impactos-da-IA-na-Educa-o-2031-2036-
+projeto agrinho e alura
